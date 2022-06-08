@@ -1,1 +1,0 @@
-# Tugas-Akhir-AJT-TKOM-A-Dewa-Made-Wisnu-Wibisana
